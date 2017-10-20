@@ -1,3 +1,3 @@
 Csak ennyit mondok...
 
-reddit.com/r/Fifireddit
+reddit.com/r/Fibireddit
