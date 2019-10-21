@@ -1,12 +1,22 @@
 # FIFI szülinapja!!!!
-## Na már csak ez hiányzott...
-Most meg mit akar ez a zakkant komedli játszani Veled?
 
-Úgysem sokáig leszünk már ebben a lakásban... Gondoltam használjuk ki a helyzetet és járjuk be még egyszer utoljára, jó alaposan, jó figyelmesen!
+## Már megint kezdem?
 
-Nagyon oda kell figyelned a lakás bejárásakor, ugyanis számos nyom került elrejtésre... Az első néhány nyom még itt-ott a világhálón szétszórva lesz, de a többi... Huhuhuuuuu...
+Tudom, tudom, így nem valami eredeti... DE!
 
-Jó keresgélést, Szerelmetes Fifikém!
+Most nem lesz nyomkeresés :)
 
-Ez a zakkant komedli csupán ennyit mond:
-reddit.com/r/Fibireddit
+Az ajándékodat (jelenlegi formájában) itt találod:
+
+https://drive.google.com/open?id=1qGdo_L18MaixrFT2JPSb1eBbxvDtXB0f
+
+És most jön az apróbetűs rész...
+
+Az ajándékod még nincs kész :( Végső formáját nemsokára elnyeri, egyelőre ez egy köztes állapot, bocsánat, ha kicsit
+itt-ott fapados, majd mindent megcsinálok pöpecre ;)
+
+Nagyon szeretlek, boldog születésnapot kíván:
+
+Csabid
+
+2019.10.22.
