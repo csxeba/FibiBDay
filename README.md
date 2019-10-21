@@ -17,6 +17,8 @@ Lehetőleg Linuxos gépről indítsd :)
 Az ajándékod még nincs kész :( Végső formáját nemsokára elnyeri, egyelőre ez egy köztes állapot, bocsánat, ha kicsit
 itt-ott fapados, majd mindent megcsinálok pöpecre ;)
 
+És még valami: úgy számolj, hogy hétfőig itthon maradunk, majd megtudod, miért :)
+
 Nagyon szeretlek, boldog születésnapot kíván:
 
 Csabid
